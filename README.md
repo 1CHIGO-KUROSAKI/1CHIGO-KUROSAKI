@@ -1,4 +1,4 @@
-## Hi there 👋
+![](https://github.com/1CHIGO-KUROSAKI/1CHIGO-KUROSAKI/blob/38de9d40da6f960b44247ef4c3eef24827853c61/200.webp)
 
 <!--
 **1CHIGO-KUROSAKI/1CHIGO-KUROSAKI** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
