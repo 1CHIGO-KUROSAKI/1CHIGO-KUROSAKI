@@ -1,6 +1,6 @@
 ㅤㅤ![](https://github.com/1CHIGO-KUROSAKI/1CHIGO-KUROSAKI/blob/38de9d40da6f960b44247ef4c3eef24827853c61/200.webp)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ──── ୨୧ ──────── ୨୧ ────────꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂──────── ୨୧ ──────── ୨୧ ────
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ──────── ୨୧ ────────꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂──────── ୨୧ ────────
 
 ㅤㅤ![](https://github.com/1CHIGO-KUROSAKI/1CHIGO-KUROSAKI/blob/dfc951e4f7f536e9d3217df0d929000e437e1195/avqzgt.gif)
 <!--
