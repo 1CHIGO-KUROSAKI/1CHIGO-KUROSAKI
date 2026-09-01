@@ -1,7 +1,7 @@
 <h6 align="center">
 
 ㅤ─ ୨୧ ──────꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂────── ୨୧ ─
-![](https://files.catbox.moe/s26jal.gif)
+![](https://github.com/1CHIGO-KUROSAKI/1CHIGO-KUROSAKI/blob/39d9e062402feb91bf73cac118b6d7f43a877668/8F9991E7-7F3C-49B2-AA17-0760107E6870.gif)
 
 <h6 align="center">
 <!--
