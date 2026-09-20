@@ -1,5 +1,7 @@
 <h6 align="center">
 
+[my orihime ♡](https://github.com/7oriord)
+
 ㅤ─ ୨୧ ──────꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂────── ୨୧ ─
 
 
