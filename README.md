@@ -1,6 +1,16 @@
 <h6 align="center">
 
-[my orihime ♡](https://github.com/7oriord)
+[my orihime ♡ toree](https://github.com/7oriord)
+<details>
+  <summary>cute ship art by my cutie</summary></summary>
+  
+  <br>
+  
+![](https://github.com/1CHIGO-KUROSAKI/1CHIGO-KUROSAKI/blob/5441ca55b0ce94bb4005d9ed33c5e85decf19294/IMG_1464.jpeg)
+
+<br>
+  
+</details>
 
 ─ ୨୧ ──────꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂────── ୨୧ ─
 
@@ -13,16 +23,6 @@
 
 ![](https://files.catbox.moe/uvhzmo.jpeg)
 
-<details>
-  <summary>cute ship art by @7oriord</summary></summary>
-  
-  <br>
-  
-![](https://github.com/1CHIGO-KUROSAKI/1CHIGO-KUROSAKI/blob/5441ca55b0ce94bb4005d9ed33c5e85decf19294/IMG_1464.jpeg)
-
-<br>
-  
-</details>
 
 <h6 align="center">
 <!--
