@@ -11,6 +11,8 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31brj477k523k7d763qcbjlsatyi&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ff8648&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
+![](https://files.catbox.moe/uvhzmo.jpeg)
+
 <h6 align="center">
 <!--
 **1CHIGO-KUROSAKI/1CHIGO-KUROSAKI** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
