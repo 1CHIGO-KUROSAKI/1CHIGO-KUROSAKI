@@ -2,7 +2,7 @@
 
 [my orihime ♡ toree](https://github.com/7oriord)
 <details>
-  <summary>cute ship art by my cutie</summary></summary>
+  <summary>cute irl ship art by my cutie</summary></summary>
   
   <br>
   
