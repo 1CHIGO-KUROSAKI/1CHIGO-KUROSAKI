@@ -13,6 +13,18 @@
 
 ![](https://files.catbox.moe/uvhzmo.jpeg)
 
+<details>
+  <summary>cute ship art by @7oriord</summary></summary>
+  
+  <br>
+  
+[<sub></sub>](https://files.catbox.moe/uvhzmo.jpeg)
+
+[<sub>@pt-fashion</sub>](https://github.com/pt-fashion)  [<sub>@pt-of-awesomeness</sub>](https://github.com/pt-of-awesomeness) [<sub>@pt-nominations</sub>](https://github.com/pt-nominations) [<sub>@ponytownyumeshippers</sub>](https://github.com/ponytownyumeshippers) [<sub>@pt-medals</sub>](https://github.com/pt-medals) [<sub>@ponychievements</sub>](https://github.com/ponychievements) [<sub>@pt-walk-of-fame</sub>](https://github.com/pt-walk-of-fame) [<sub>@pt-loveforfictional</sub>](https://github.com/pt-loveforfictional)
+<br>
+  
+</details>
+
 <h6 align="center">
 <!--
 **1CHIGO-KUROSAKI/1CHIGO-KUROSAKI** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
