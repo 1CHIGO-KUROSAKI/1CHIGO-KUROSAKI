@@ -18,9 +18,8 @@
   
   <br>
   
-[<sub></sub>](https://files.catbox.moe/uvhzmo.jpeg)
+![](https://github.com/1CHIGO-KUROSAKI/1CHIGO-KUROSAKI/blob/5441ca55b0ce94bb4005d9ed33c5e85decf19294/IMG_1464.jpeg)
 
-[<sub>@pt-fashion</sub>](https://github.com/pt-fashion)  [<sub>@pt-of-awesomeness</sub>](https://github.com/pt-of-awesomeness) [<sub>@pt-nominations</sub>](https://github.com/pt-nominations) [<sub>@ponytownyumeshippers</sub>](https://github.com/ponytownyumeshippers) [<sub>@pt-medals</sub>](https://github.com/pt-medals) [<sub>@ponychievements</sub>](https://github.com/ponychievements) [<sub>@pt-walk-of-fame</sub>](https://github.com/pt-walk-of-fame) [<sub>@pt-loveforfictional</sub>](https://github.com/pt-loveforfictional)
 <br>
   
 </details>
