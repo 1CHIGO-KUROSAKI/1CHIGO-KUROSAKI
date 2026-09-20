@@ -23,7 +23,6 @@
 
 ![](https://files.catbox.moe/uvhzmo.jpeg)
 
-
 <h6 align="center">
 <!--
 **1CHIGO-KUROSAKI/1CHIGO-KUROSAKI** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
