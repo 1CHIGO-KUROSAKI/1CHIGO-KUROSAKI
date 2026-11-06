@@ -1,6 +1,6 @@
 <h6 align="center">
 
-[my orihime ♡ toree](https://github.com/7oriord)
+[my orihime ♡ torie](https://github.com/7oriord)
 <details>
   <summary>cute irl ship art by my cutie</summary></summary>
   
